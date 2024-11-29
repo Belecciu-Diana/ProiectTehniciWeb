@@ -1,0 +1,1 @@
+Portofoliu și magazin online pentru lucrarile mele, Belecciu Diana. Fac desene si picturi realizare in creion, carbune, tempera, acrilic, tus, tehnica mixta, colaj, desen digital s.a.m.d. Toate lucrarile achizitionate sunt o.o.a.k. (one of a kind, original, unicat) facute manual pentru fiecare client in parte dupa preferintele mentionate.
